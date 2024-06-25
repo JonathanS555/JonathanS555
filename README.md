@@ -1,2 +1,2 @@
-👋 Hi, I’m @JonathanS555, a data analyst and professional engineer. Welcome to my profile!
+👋 Hi, I’m @JonathanS555, a data analyst and engineer. Welcome to my profile!
 
